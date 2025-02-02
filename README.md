@@ -1,1 +1,3 @@
 hahdudsahouaBUoabfoasbofans seX SEX SEX
+
+how do I DELTE THIS REPOOSITORYU BELOW READ ME HOW DO I DO IT HELP ME PLS
