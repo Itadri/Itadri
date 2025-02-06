@@ -6,3 +6,7 @@ anyway pls if youre like... below.. 12... (im rlly uncomfortable with younger pe
 i spek polsih adn english lol.......................................
 
 pls if youre uncomfortabnle with myw eird humor hten justr plspls tell me BRO I WILL ACT NORMAL AROUDN YOU BRO!!!!!!!!!!!!!!!!!!!!! thats a lie lol i dont care tbh... (i only care if were close........)
+
+sybau (''shut your bitch ass up'' for short if someone doesnt know the slang lol) and dont even approach me if youre transphobic, homohpobic or a zoo/pedophile llooooollloloololol............... or a groomer, you shuld kill urselg atp lol. im deadass
+
+im acyually deaf irl!!!!!!!!1 i was born deaf!!!!!!!! loloolollol....................... also plspsplspslpsdlspalfowmeawomfae i make alot of grammar mistakes lollol............... deal with it
