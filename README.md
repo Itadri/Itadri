@@ -14,6 +14,8 @@ sybau again if youre making fun or mocking people becus of their mental illness 
 
 im also trans btw! ftm but it wont stop me from using she/they pronouns lololol dont get weird ideas and dont call me a woman, thx
 
-''why r u uncomf with younger people but not older peopel'' BECAUSE im VERY used to being around older people, but not younger. i have, and i mean, ALOT of friends that are reaching their 18's or twenties, so!
+''why r u uncomf with younger people but not older peopel'' BECAUSE im VERY used to being around older people, but not younger. i have, and i mean, ALOT of friends that are reaching their 18's or twenties, so! so sorry if that doesnt make sense but i literlly cannot explain differently, im just used to being around older people sorry
 
-''jjk ended, sybau and delete ur jjk skins'' no lol... im too hyperfixated on jjk u can NOT stop me!! HAHAHAHAHAHAHHHHHHHAAAAAAAAAAAAAAAAAA plus if s3 omes out every jjk fan will come back trust ..............
+''jjk ended, sybau and delete ur jjk skins'' no lol... im too hyperfixated on jjk and i mean TOO hyperfixated, like like REALLY!!!!!!!!!! u can NOT stop me!! HAHAHAHAHAHAHHHHHHHAAAAHAHAHAAAAAAAAAAAA plus if s3 omes out every jjk fan will come back trust.............
+
+
