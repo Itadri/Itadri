@@ -33,3 +33,27 @@ wasted mey lierk 40 minutesw to tyoe it normallny insrtasd of fucking being dsyl
 
 also, i dont suport endo's or whtever yu guys are youre probaby faking did go die i dont supoprt fake diders (sounds like diddlers LFMAO i meant did'ers or something)
 
+ABOPUT c+h aND W2I ples literally do the fucking w2i instead of talking to me in public i literealy cant fucking see mesages becsaue im literarly afk like evwery fdukcing nano second, i NEED peopl to whipressrerMEEEEEEEEEEEEEEE!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!
+asd ofr the uhj what oh the c+h litealy you can cudle mee w/o permsion (if i am afk, if im like, sitting alone yet NOT afk, you can eiuther ask or jsut come up to me LMFAOOOOOOOOO but i will ignore you[i wont move away fr dw]) butr POELSAE if im cudding with osomeone ealready (for example knux cuz im mostly wioth him!!!!!!!!!!!!) ill get frustrated and move. IT'D BE COOL IF YIOU FUCKING ASKED ME OR THE PERSON IM CUDDLING YOU FUCKERS sorry unvalid crashout!!!!!!!!!!!!!!!!!!!!!!!!!!!!!!! AHHAHAHAAAAAAAAAAAAAAAAHA!!!!!!!!!!!!!!!!!
+
+TW/CW/GW/GAU SHIP/DUED X DUDE SHIP/LESBIAN SHIP/ GIRL X GIRL SHIP/ GO AWAY STRAGGOTS(just kididng) AND ONLY JJK SHIPS DIE DIE DIE DIE DIE sorry hi 
+
+hi i ship fushiita, trans4trans itakugi cuz why not :heart: (im currently obsessing over t4t itakugi ahahhahHAHAHAHHAAHA...........HAAA..haa..ha. die)
+and
+
+sukuna x g0j* ig......
+g0j* x my glroious kign geto suguru
+nobara x rindo (jjk phantom parade)
+nobara x maki :heart:
+maybe... kaito x yuji... platonic and slight romantic i guesss!!!! (kaito as in kaito yuki, from jjk phantom parade)
+NYAAA KOKICHI/MECHAMARU X MIWA
+KKYYAAAA!!!!!!!!! SHOKO X UTAHIME!!!!!!!!!
+toji x sukuna.... evil fushiita :heart:
+maki x yuta :heart:
+CHOSO X YUKI 
+
+if u dont like these hsips the n fuck off and suck my cunt
+
+im a multi shipper leave me alone
+''why is it only jjk ships'' becasue im fucikng obsessed with jjk tright now fucking fuckers
+''why gay'' because why not
