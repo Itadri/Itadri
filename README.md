@@ -31,5 +31,5 @@ If you're a system/have DID, then feel free to interact, just say before so. Alt
 
 wasted mey lierk 40 minutesw to tyoe it normallny insrtasd of fucking being dsylecix wtf be grategful you little fuckers /nm /pos
 
-+ i dont suport endo's or whtever yu guys are youre probaby faking did go die i dont supoprt fake diders (sounds like diddlers LFMAO i meant did'ers or something)
+also, i dont suport endo's or whtever yu guys are youre probaby faking did go die i dont supoprt fake diders (sounds like diddlers LFMAO i meant did'ers or something)
 
