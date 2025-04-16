@@ -42,14 +42,14 @@ hi i ship fushiita, trans4trans itakugi cuz why not :heart: (im currently obsess
 and
 
 sukuna x g0j* ig......
-g0j* x my glroious kign geto suguru
-nobara x rindo (jjk phantom parade)
-nobara x maki :heart:
-maybe... kaito x yuji... platonic and slight romantic i guesss!!!! (kaito as in kaito yuki, from jjk phantom parade)
-NYAAA KOKICHI/MECHAMARU X MIWA
-KKYYAAAA!!!!!!!!! SHOKO X UTAHIME!!!!!!!!!
-toji x sukuna.... evil fushiita :heart:
-maki x yuta :heart:
+g0j* x my glroious kign geto suguru,
+nobara x rindo (jjk phantom parade),
+nobara x maki :heart:,
+maybe... kaito x yuji... platonic and slight romantic i guesss!!!! (kaito as in kaito yuki, from jjk phantom parade),
+NYAAA KOKICHI/MECHAMARU X MIWA,
+KKYYAAAA!!!!!!!!! SHOKO X UTAHIME!!!!!!!!!,
+toji x sukuna.... evil fushiita :heart:,
+maki x yuta :heart:,
 CHOSO X YUKI 
 
 if u dont like these hsips the n fuck off and suck my cunt
